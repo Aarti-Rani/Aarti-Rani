@@ -4,4 +4,4 @@
 - 🌱 I’m currently learning Java and Python                                    
 - 📫 Reach me at [LinkdIn](in/aarti-rani-8840021b6)
 - 😄 Pronouns: She/her                                                                                    
-- ⚡ Fun fact: Listening to the right music while working helps people get things done faster.
+- ⚡ Fun fact: I love hiking and have climbed 5 different mountains.
